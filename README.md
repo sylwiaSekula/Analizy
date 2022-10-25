@@ -1,1 +1,1 @@
-# Zadania
+# Analizy
